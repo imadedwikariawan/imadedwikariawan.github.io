@@ -1,0 +1,1 @@
+Repo ini merupakan repo yang saya buat pertama. Memang masih belum sempurna, tetapi seiring waktu pasti bisa aku tingkatkan.
